@@ -1,2 +1,2 @@
 # OurProject
-Zayn and Zayn try coding together :3
+Zayn and Sophy try coding together :3
